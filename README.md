@@ -1,1 +1,1 @@
-computer engineering undergrad
+In a world where you can be everything, be curious.
